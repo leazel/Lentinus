@@ -1,1 +1,1 @@
-# Pleurotos
+# Pleurotus
