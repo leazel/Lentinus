@@ -1,1 +1,1 @@
-# Pleurotus
+# Lentinus
